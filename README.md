@@ -1,1 +1,1 @@
-# CashtaneCS on GitHub.io ©2024
+# CashtaneCS on GitHub ©2024
